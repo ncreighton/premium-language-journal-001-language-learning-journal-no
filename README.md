@@ -1,0 +1,2 @@
+# premium-language-journal-001-language-learning-journal-no
+Tired of flashcards that don't stick and apps that forget your progress? The Language Learning Journal - Notion Template turns every lesson into a reflective practice that actually embeds language into long-term memory.  This isn't another spaced-repetition tool—it's a structured journal that connects vocabulary, grammar, and cultural notes with da
